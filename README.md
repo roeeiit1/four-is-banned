@@ -1,2 +1,2 @@
 # four-is-banned
-Good night Lior :)
+״סליחה מספר ארבע פסולה מהיום״ ~ חכם סיני זקן
